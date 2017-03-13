@@ -8,3 +8,4 @@ just study,begin to do,for the future,for my love,for my dream.
 葛桃桃，建晨，袁燕，凯强，桃，爸爸，妈妈，李纯，奶奶，佟影，杜静，石琼，立柱，我的未来。
 开始。
 新的开始。Do。
+ 
